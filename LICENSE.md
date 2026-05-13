@@ -1,4 +1,4 @@
-# 
+# Enhance Any.do for Windows with Any.do for Windows automatic Extension: integration-with-calendars & filters, the #1 extension. Includes integration-with-calendars and filters for
 
 
 
